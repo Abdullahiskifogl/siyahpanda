@@ -1,4 +1,4 @@
-siyahpanda
+Siyah Panda
 ==========
 
-Siyah panda sitesi
+http://www.siyahpanda.com/ sitesinde çalışmak isteyen yazarlar aranıyor.
